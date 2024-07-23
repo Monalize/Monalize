@@ -1,5 +1,5 @@
 -  Hi, I’m Monalize
-- 👀 I’m interested in screen printing, data analysis, 
+- 👀 I’m interested in screen printing, data analysis and planning parties
 -  I’m currently learning a lot of new interesting stuff that keeps me excited and challenged (I like a challenge)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ms.monalize@gmail.com
